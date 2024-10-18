@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **memonabdulgani3d@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/4bn4j3xj](https://tinyurl.com/4bn4j3xj)
+- 📄 Know about my experiences [Resume](https://drive.google.com/drive/u/0/folders/1_PFnN7Vw8NMmFjzebv-TPcFdkh7CE-Y4)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
